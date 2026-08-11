@@ -1,4 +1,12 @@
 # TRRRRRRRRR
+    an idiot who is homesick
+
+# GRRRRRRRR
+
+     ANOTHER piece shitt
+
+# SRRRRRRRR
+     THE ideot who made me re think life choices
 # monthtester
    <b> This is a basic no useful month name sayer as shown by kerala govt for students help the concept of c++</b>
 
